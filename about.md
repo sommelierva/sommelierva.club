@@ -1,15 +1,15 @@
 ---
 layout: page
-title: About
+title: Sobre
 permalink: /about/
 ---
 
-Some information about you!
+Esse é o blog do Sommelierva!
 
-### More Information
+### E Daí?
 
-A place to include any other types of information that you'd like to include about yourself.
+E daí que eu gosto muito de maconha e resolve abrir um espaço na internet para escrever textos sobre a cultura da maconha nos lugares mais exóticos do nosso planeta! Vai ser um mix de traduções de textos da Vice com conteúdos encontrados no Instagram e uma pitada de conhecimento próprio, para trazer aos leitores brasileiros informações que eles só encontrariam se soubesesm inglês.
 
-### Contact me
+### Entre em Contato
 
-[email@domain.com](mailto:email@domain.com)
+[sommeliervablog@gmail.com](mailto:sommeliervablog@gmail.com)
