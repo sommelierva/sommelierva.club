@@ -23,9 +23,9 @@ Dizem que esses soldados são os ancestrais do povo Malani. Artefatos desse per�
 <img src="https://i.imgur.com/6WePaef.jpg" alt="Malana Haxixe">
 Imagem: BBC
 
-O alto teor de óleo do Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã e, em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana, para que possam cobrar mais pelo seu produto. Uma tola, ou 11,66 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
+O alto teor de resina encontrado no Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã, e em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana para que possam cobrar mais caro. Uma tola como é chamado os pedações vendidos, ou 11,66 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
 
-Muito pouco além da cannabis é produzido em Malana, graças à popularidade do haxixe e da inacessibilidade da região. Residentes e mulas carregam cargas de alimentos essenciais pela montanha, o que requer uma caminhada de uma hora por trilhas estreitas para a estrada mais próxima que pode ser usada por carros. Uma cidade, Kasol, fica a mais 20 quilômetros de distância, por estradas irregulares e sujeitas a deslizamentos de terra e acidentes.
+Muito pouco além da cannabis é produzido em Malana, graças à popularidade do haxixe e da inacessibilidade da região. Residentes e mulas carregam cargas de alimentos essenciais pela montanha, o que requer uma caminhada de pelo menos uma hora por trilhas estreitas para a estrada mais próxima, que pode ser usada por motos. A cidade mais próxima, Kasol, fica a mais 20 quilômetros de distância, por estradas irregulares e sujeitas a deslizamentos de terra e acidentes.
 
 O Deus de Malana, Jamlu, proíbe que os habitantes de Malana toquem em pessoas de fora da vila, ou tenham qualquer tipo de interação social com elas, como por exemplo comer juntos . Eles não gostam de estranhos tocando suas coisas. Uma mulher se encolheu quando um visitante da vila pegou um pedaço de madeira derrubado por ela, pois, queria evitar o contato ao máximo.
 
@@ -55,5 +55,30 @@ Está em inglês e até o momento não há legendas em português, mas vale a pe
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CqFiucWKo-8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+## Fontes
+
+Wikipedia
+https://en.wikipedia.org/wiki/Malana,_Himachal_Pradesh
+
+The Print
+https://theprint.in/india/governance/apart-from-weed-and-malana-cream-himachal-also-has-a-heroin-problem-brewing/120523/
+
+NY Times
+https://india.blogs.nytimes.com/2012/07/02/malanas-cream-brings-problems-and-profits/
+
+The Hindu
+https://www.thehindu.com/society/malana-the-valley-of-cannabis/article24114604.ece
+
+INDEPENDENT
+https://www.independent.co.uk/news/world/asia/cannabis-marijuana-malana-where-is-a7454651.html
+
+Quartz India
+https://qz.com/india/1026188/malana-an-ancient-himalayan-village-known-for-indias-best-hash-is-now-off-limits-for-tourists/
+
+India Today
+https://www.indiatoday.in/india/story/indian-village-malana-himachal-pradesh-cannabis-livelihood-355610-2016-12-04
+
+India Times
+https://timesofindia.indiatimes.com/travel/destinations/no-more-stoners-malana-restricts-tourist-entry-and-sale-of-cannabis/as59738540.cms
 
 
