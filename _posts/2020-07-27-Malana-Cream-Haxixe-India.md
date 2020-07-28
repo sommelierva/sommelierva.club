@@ -21,7 +21,14 @@ Dizem que esses soldados são os ancestrais do povo Malani. Artefatos desse per�
 ![Malana - Haxixe]({{site.baseurl}}/https://i.imgur.com/6WePaef.jpg)
 Imagem: BBC
 
+O alto teor de óleo do Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã e, em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana, para que possam cobrar mais pelo seu produto. Uma tola, ou 11,66 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
 
+Muito pouco além da cannabis é produzido em Malana, graças à popularidade do haxixe e da inacessibilidade da região. Residentes e mulas carregam cargas de alimentos essenciais pela montanha, o que requer uma caminhada de uma hora por trilhas estreitas para a estrada mais próxima que pode ser usada por carros. Uma cidade, Kasol, fica a mais 20 quilômetros de distância, por estradas irregulares e sujeitas a deslizamentos de terra e acidentes.
 
+O Deus de Malana, Jamlu, proíbe que os habitantes de Malana toquem em pessoas de fora da vila, ou tenham qualquer tipo de interação social com elas, como por exemplo comer juntos . Eles não gostam de estranhos tocando suas coisas. Uma mulher se encolheu quando um visitante da vila pegou um pedaço de madeira derrubado por ela, pois, queria evitar o contato ao máximo.
+
+Os moradores de Malana e o restante do vale de Parvati suspeitam especialmente do governo, que, segundo eles, não conseguiu envolver as pessoas em um diálogo construtivo para acabar com o narcotráfico e proporcionar melhores condições de vida ao povo que lá vive.
+
+A maioria das pessoas em Malana está empregada no comércio de cannabis ou no negócio do narcoturismo."Alguns pais aqui dizem aos filhos para trabalharem nas fazendas, em vez de irem para a escola", disse Preet, que pediu que seu nome completo não fosse usado.
 
 
