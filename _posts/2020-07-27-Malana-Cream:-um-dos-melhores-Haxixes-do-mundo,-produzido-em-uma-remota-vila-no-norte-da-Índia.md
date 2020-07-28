@@ -55,6 +55,8 @@ Está em inglês e até o momento não há legendas em português, mas vale a pe
 
 <iframe width="560" height="315" src="https://www.youtube.com/embed/CqFiucWKo-8" frameborder="0" allow="accelerometer; autoplay; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
 
+<a href="whatsapp://send?text=https://sommelierva.github.io/Malana-Cream-um-dos-melhores-Haxixes-do-mundo,-produzido-em-uma-remota-vila-no-norte-da-%C3%8Dndia/" data-action="share/whatsapp/share">Compartilhe no Whatsapp com seus amigxs</a>
+
 ## Fontes
 
 Wikipedia: https://en.wikipedia.org/wiki/Malana,_Himachal_Pradesh
