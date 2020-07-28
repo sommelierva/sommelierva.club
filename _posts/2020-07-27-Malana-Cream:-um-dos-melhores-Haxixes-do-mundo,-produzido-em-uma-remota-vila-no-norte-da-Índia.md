@@ -41,7 +41,7 @@ Em Malana uma forma comum para extração é fazer **charas**, uma técnica mile
 
 Os charas são produzidos em casas, conhecidas como "Casas de Charas" pela população local. As plantas do Vale Wailing, levam geralmente de 10 à 14 semananas para ficarem prontas, dependendo da genética e quantidade de sol que recebe.
 
-O melhor perfil no Instagram para conhecer as histórias de Malana é o do amigo [@landracemafia](https://www.instagram.com/landracemafia/ "Landrace Mafia Malana"), que compartilha o dia-a-dia da vila vende sementes exclusivas da região para colecionadores de plantas exóticas.
+O melhor perfil no Instagram para conhecer as histórias de Malana é o do amigo [@landracemafia](https://www.instagram.com/landracemafia/ "Landrace Mafia Malana"), que compartilha o dia-a-dia da vila e vende sementes exclusivas da região para colecionadores de plantas exóticas.
 
 <img src="https://i.imgur.com/Tz2fAIc.jpg" alt="Casas de Charas em Malana - Landrace Mafia - Malana Cream haxixe">
 Imagem: Landrace Mafia
