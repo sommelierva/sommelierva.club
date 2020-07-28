@@ -4,7 +4,7 @@ published: true
 
 Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
 
-Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana antigamente era preciso até 4 dias de viagem, mas com os avanços dos últimos anos você pode ir de carro até o ponto base, em Nirang, e depois de percorrer uma trila a pé de cerca de 2 horas, você chegará ao local sagrado.
+Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana antigamente era preciso até 4 dias de viagem, mas com os avanços dos últimos anos você pode ir de carro até o ponto base, em Nirang, e depois de percorrer uma trilha a pé de cerca de 2 horas, você chegará ao local sagrado.
 
 <img src="https://i.imgur.com/LXttUap.jpg" alt="Malana Cream - O Haxixe mais saboroso do mundo">
 Imagem: Landrace Mafia
