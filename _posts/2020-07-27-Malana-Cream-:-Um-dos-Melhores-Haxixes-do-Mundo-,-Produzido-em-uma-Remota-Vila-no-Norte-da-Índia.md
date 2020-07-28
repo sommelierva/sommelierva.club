@@ -1,7 +1,6 @@
 ---
 published: true
 ---
-## Malana Cream: Um dos Melhores Haxixes do Mundo, Produzido em uma Remota Vila no Norte da Índia
 
 <img src="https://i.imgur.com/LXttUap.jpg" alt="Malana Cream - O Haxixe mais saboroso do mundo">
 Imagem: Landrace Mafia
