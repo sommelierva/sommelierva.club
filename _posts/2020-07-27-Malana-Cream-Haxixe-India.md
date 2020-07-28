@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 ## Malana Cream: Um dos Melhores Haxixes do Mundo, Produzido em uma Remota Vila no Norte da Índia
 
