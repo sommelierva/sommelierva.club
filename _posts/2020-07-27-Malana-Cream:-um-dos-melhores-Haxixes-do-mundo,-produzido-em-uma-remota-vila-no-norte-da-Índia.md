@@ -23,7 +23,9 @@ Dizem que esses soldados são os ancestrais do povo Malani. Artefatos desse per�
 <img src="https://i.imgur.com/6WePaef.jpg" alt="Malana Haxixe">
 Imagem: BBC
 
-O alto teor de resina encontrado no Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã, e em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana para que possam cobrar mais caro. Uma tola como é chamado os pedações vendidos, ou 10 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
+O alto teor de resina encontrado no Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã, e em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana para que possam cobrar mais caro. Uma tola como é chamado os pedações vendidos, ou 10 gramas, é vendido por cerca deUS$ 30 dólares em Malana, US$ 70 dólares em Délhi, US$ 100 dólares em Goa e pode chegar até US$ 500 em Amsterdã.
+
+Na vila é possível encontrar o que nós brasileiros chamamos de "crema", aquele haxixe de altissíma qualidade, que em Malana é chamado de "supercream" e pode custar até US$ 80 dólares por tola (10g).
 
 Muito pouco além da cannabis é produzido em Malana, graças à popularidade do haxixe e da inacessibilidade da região. Residentes e mulas carregam cargas de alimentos essenciais pela montanha, o que requer uma caminhada de pelo menos uma hora por trilhas estreitas para a estrada mais próxima, que pode ser usada por motos. A cidade mais próxima, Kasol, fica a mais 20 quilômetros de distância, por estradas irregulares e sujeitas a deslizamentos de terra e acidentes.
 
