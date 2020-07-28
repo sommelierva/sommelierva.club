@@ -57,28 +57,20 @@ Está em inglês e até o momento não há legendas em português, mas vale a pe
 
 ## Fontes
 
-Wikipedia
-https://en.wikipedia.org/wiki/Malana,_Himachal_Pradesh
+Wikipedia: https://en.wikipedia.org/wiki/Malana,_Himachal_Pradesh
 
-The Print
-https://theprint.in/india/governance/apart-from-weed-and-malana-cream-himachal-also-has-a-heroin-problem-brewing/120523/
+The Print: https://theprint.in/india/governance/apart-from-weed-and-malana-cream-himachal-also-has-a-heroin-problem-brewing/120523/
 
-NY Times
-https://india.blogs.nytimes.com/2012/07/02/malanas-cream-brings-problems-and-profits/
+NY Times: https://india.blogs.nytimes.com/2012/07/02/malanas-cream-brings-problems-and-profits/
 
-The Hindu
-https://www.thehindu.com/society/malana-the-valley-of-cannabis/article24114604.ece
+The Hindu: https://www.thehindu.com/society/malana-the-valley-of-cannabis/article24114604.ece
 
-INDEPENDENT
-https://www.independent.co.uk/news/world/asia/cannabis-marijuana-malana-where-is-a7454651.html
+INDEPENDENT: https://www.independent.co.uk/news/world/asia/cannabis-marijuana-malana-where-is-a7454651.html
 
-Quartz India
-https://qz.com/india/1026188/malana-an-ancient-himalayan-village-known-for-indias-best-hash-is-now-off-limits-for-tourists/
+Quartz India: https://qz.com/india/1026188/malana-an-ancient-himalayan-village-known-for-indias-best-hash-is-now-off-limits-for-tourists/
 
-India Today
-https://www.indiatoday.in/india/story/indian-village-malana-himachal-pradesh-cannabis-livelihood-355610-2016-12-04
+India Today: https://www.indiatoday.in/india/story/indian-village-malana-himachal-pradesh-cannabis-livelihood-355610-2016-12-04
 
-India Times
-https://timesofindia.indiatimes.com/travel/destinations/no-more-stoners-malana-restricts-tourist-entry-and-sale-of-cannabis/as59738540.cms
+India Times: https://timesofindia.indiatimes.com/travel/destinations/no-more-stoners-malana-restricts-tourist-entry-and-sale-of-cannabis/as59738540.cms
 
 
