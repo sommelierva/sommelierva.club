@@ -4,7 +4,7 @@ published: true
 
 Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
 
-Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana é preciso quatro dias de caminhada a partir da estrada mais próxima, ou se aventurar de moto por trilhas estreitras subindo a montanha.
+Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana antigamente era preciso até 4 dias de viagem, mas com os avanços dos últimos anos você pode ir de carro até o ponto base, em Nirang, e depois de percorrer uma trila a pé de cerca de 2 horas, você chegará ao local sagrado.
 
 <img src="https://i.imgur.com/LXttUap.jpg" alt="Malana Cream - O Haxixe mais saboroso do mundo">
 Imagem: Landrace Mafia
@@ -18,20 +18,20 @@ Diz a lenda que alguns dos exércitos de Alexandre, o Grande, se abrigaram nesta
 
 Dizem que esses soldados são os ancestrais do povo Malani. Artefatos desse período foram encontrados na vila, como uma espada que supostamente repousa dentro do templo. No entanto, os laços genéticos com os soldados não foram estudados ou estabelecidos. De fato, muitos dos locais não tem idéia de onde esse mito se originou.
 
-“A grande alegação de que o povo Malani descende do exército de Alexandre, o Grande, se tornou uma verdade amplamente aceita, mas não encontrei nenhum apoio real a ela. Existem algumas armas e outras coisas que levantaram esses vínculos, mas não há evidências para essa história”, disse Amlan Datta, cineasta que passou uma década trabalhando em Malana.
+“A grande alegação de que o povo Malani descende do exército de Alexandre, o Grande, se tornou uma verdade amplamente aceita, mas não há tantas provas, existem algumas armas e outras coisas que levantaram esses vínculos, mas não há evidências para comprovar 100% essa história”, disse Amlan Datta, cineasta que passou uma década trabalhando em Malana.
 
 <img src="https://i.imgur.com/6WePaef.jpg" alt="Malana Haxixe">
 Imagem: BBC
 
-O alto teor de resina encontrado no Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã, e em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana para que possam cobrar mais caro. Uma tola como é chamado os pedações vendidos, ou 11,66 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
+O alto teor de resina encontrado no Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã, e em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana para que possam cobrar mais caro. Uma tola como é chamado os pedações vendidos, ou 10 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
 
 Muito pouco além da cannabis é produzido em Malana, graças à popularidade do haxixe e da inacessibilidade da região. Residentes e mulas carregam cargas de alimentos essenciais pela montanha, o que requer uma caminhada de pelo menos uma hora por trilhas estreitas para a estrada mais próxima, que pode ser usada por motos. A cidade mais próxima, Kasol, fica a mais 20 quilômetros de distância, por estradas irregulares e sujeitas a deslizamentos de terra e acidentes.
 
-O Deus de Malana, Jamlu, proíbe que os habitantes de Malana toquem em pessoas de fora da vila, ou tenham qualquer tipo de interação social com elas, como por exemplo comer juntos . Eles não gostam de estranhos tocando suas coisas. Uma mulher se encolheu quando um visitante da vila pegou um pedaço de madeira derrubado por ela, pois, queria evitar o contato ao máximo.
+O Deus de Malana, Jamlu, proíbe que os habitantes de Malana toquem em pessoas de fora da vila, ou tenham qualquer tipo de interação social com elas, como por exemplo comer juntos . Eles não gostam de estranhos tocando suas coisas, é uma forma de respeito. Uma mulher se encolheu quando um visitante da vila pegou um pedaço de madeira derrubado por ela, pois, queria evitar o contato com quem é de fora.
 
-Os moradores de Malana e o restante do vale de Parvati suspeitam especialmente do governo, que, segundo eles, não conseguiu envolver as pessoas em um diálogo construtivo para acabar com o narcotráfico e proporcionar melhores condições de vida ao povo que lá vive.
+Os moradores de Malana e o restante do vale de Parvati não possuem a melhor relação do mundo com o governo, que, segundo eles, não foi capaz de envolver as pessoas em um diálogo construtivo para acabar com o narcotráfico e proporcionar melhores condições de vida ao povo que lá vive.
 
-A maioria das pessoas em Malana está empregada no comércio de cannabis ou no negócio do narcoturismo."Alguns pais aqui dizem aos filhos para trabalharem nas fazendas, em vez de irem para a escola", disse Preet, que pediu que seu nome completo não fosse usado.
+A maioria das pessoas em Malana está empregada no comércio de cannabis ou no negócio do turismo. "Alguns pais aqui dizem aos filhos para trabalharem nas fazendas, em vez de irem para a escola", disse Preet, que pediu que seu nome completo não fosse usado.
 
 ### Como é feito o haxixe?
 
