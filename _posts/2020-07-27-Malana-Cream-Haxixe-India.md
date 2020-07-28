@@ -4,6 +4,7 @@ published: true
 ## Malana Cream: Um dos Melhores Haxixes do Mundo, Produzido em uma Remota Vila no Norte da Índia
 
 <img src="https://i.imgur.com/LXttUap.jpg" alt="Malana Cream - O Haxixe mais saboroso do mundo">
+Imagem: Landrace Mafia
 
 Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
 
@@ -11,7 +12,7 @@ Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana é pr
 
 Suas leis e costumes, segundo a tradição, foram estabelecidas pelo Deus da vila, Jamlu.
 
-![Malana]({{site.baseurl}}https://upload.wikimedia.org/wikipedia/commons/thumb/3/32/Malana.jpg/1280px-Malana.jpg)
+<img src="https://upload.wikimedia.org/wikipedia/commons/thumb/3/32/Malana.jpg/1280px-Malana.jpg" alt="Entrada de Malana">
 Imagem: WikiMedia
 
 Diz a lenda que alguns dos exércitos de Alexandre, o Grande, se abrigaram nesta vila isolada em 326 aC depois de terem sido feridos em uma batalha contra Porus, um governante na região de Punjab na Índia. 
@@ -20,7 +21,7 @@ Dizem que esses soldados são os ancestrais do povo Malani. Artefatos desse per�
 
 “A grande alegação de que o povo Malani descende do exército de Alexandre, o Grande, se tornou uma verdade amplamente aceita, mas não encontrei nenhum apoio real a ela. Existem algumas armas e outras coisas que levantaram esses vínculos, mas não há evidências para essa história”, disse Amlan Datta, cineasta que passou uma década trabalhando em Malana.
 
-![Malana - Haxixe]({{site.baseurl}}https://i.imgur.com/6WePaef.jpg)
+<img src="https://i.imgur.com/6WePaef.jpg" alt="Malana Haxixe">
 Imagem: BBC
 
 O alto teor de óleo do Malana Cream o torna um dos haxixe mais caros nos cardápios de maconha de Amsterdã e, em Délhi, na Índia, os revendedores afirmam que seus produtos são da Malana, para que possam cobrar mais pelo seu produto. Uma tola, ou 11,66 gramas, é vendido por US$ 16 dólares em Malana, US$ 40 dólares em Délhi, US$ 70 dólares em Goa e pode chegar até US$ 250 em Amsterdã.
@@ -41,11 +42,11 @@ Os charas são produzidos em casas, conhecidas como "Casas de Charas" pela popul
 
 O melhor perfil no Instagram para conhecer as histórias de Malana é o do amigo [@landracemafia](https://www.instagram.com/landracemafia/ "Landrace Mafia Malana"), que compartilha o dia-a-dia da vila vende sementes exclusivas da região para colecionadores de plantas exóticas.
 
-![Casas de Charas em Malana - Landrace Mafia - Malana Cream haxixe]({{site.baseurl}}https://i.imgur.com/Tz2fAIc.jpg)
+<img src="https://i.imgur.com/Tz2fAIc.jpg" alt="Casas de Charas em Malana - Landrace Mafia - Malana Cream haxixe">
 Imagem: Landrace Mafia
 
 ### Charas
-![Chara - Haxixe - Malana]({{site.baseurl}}https://i.imgur.com/ahoNHAh.jpg)
+<img src="https://i.imgur.com/ahoNHAh.jpg" alt="Chara - Haxixe - Malanae">
 
 ### Quer conhecer mais sobre Malana?
 
