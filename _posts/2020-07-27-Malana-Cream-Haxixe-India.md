@@ -3,7 +3,9 @@ published: false
 ---
 ## Malana Cream: Um dos Melhores Haxixes do Mundo, Produzido em uma Remota Vila no Norte da Índia
 
-Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes.
+Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
+
+![Malana Cream - O Haxixe mais saboroso do mundo]({{site.baseurl}}/https://i.imgur.com/LXttUap.jpg)
 
 Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana é preciso quatro dias de caminhada a partir da estrada mais próxima, ou se aventurar de moto por trilhas estreitras subindo a montanha.
 
@@ -30,5 +32,27 @@ O Deus de Malana, Jamlu, proíbe que os habitantes de Malana toquem em pessoas d
 Os moradores de Malana e o restante do vale de Parvati suspeitam especialmente do governo, que, segundo eles, não conseguiu envolver as pessoas em um diálogo construtivo para acabar com o narcotráfico e proporcionar melhores condições de vida ao povo que lá vive.
 
 A maioria das pessoas em Malana está empregada no comércio de cannabis ou no negócio do narcoturismo."Alguns pais aqui dizem aos filhos para trabalharem nas fazendas, em vez de irem para a escola", disse Preet, que pediu que seu nome completo não fosse usado.
+
+### Como é feito o haxixe?
+
+Em Malana uma forma comum para extração é fazer **charas**, uma técnica milenar que consiste em esfregar aos mãos gentilmente nos buds e deixar que a resina vá se acumulando na palma da sua mão. Quanto mais tempo você esfregar, mais irá extrair.
+
+Os charas são produzidos em casas, conhecidas como "Casas de Charas" pela população local. As plantas do Vale Wailing, levam geralmente de 10 à 14 semananas para ficarem prontas, dependendo da genética e quantidade de sol que recebe.
+
+O melhor perfil no Instagram para conhecer as histórias de Malana é o do amigo [@landracemafia](https://www.instagram.com/landracemafia/ "Landrace Mafia Malana"), que compartilha o dia-a-dia da vila vende sementes exclusivas da região para colecionadores de plantas exóticas.
+
+![Casas de Charas em Malana - Landrace Mafia - Malana Cream haxixe]({{site.baseurl}}/https://i.imgur.com/Tz2fAIc.jpg)
+Imagem: Landrace Mafia
+
+### Charas
+![Chara - Haxixe - Malana]({{site.baseurl}}/https://i.imgur.com/ahoNHAh.jpg)
+
+### Quer conhecer mais sobre Malana?
+
+Existe uma empresa de sementes de Amsterdã chamada Green House Seed Company, que organizou uma expedição para Malana, é talvez o documentário mais completo sobre a região que você vai encontrar.
+
+Está em inglês e até o momento não há legendas em português, mas vale a pena dar um confere:
+
+
 
 
