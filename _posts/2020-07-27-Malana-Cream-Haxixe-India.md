@@ -3,9 +3,9 @@ published: true
 ---
 ## Malana Cream: Um dos Melhores Haxixes do Mundo, Produzido em uma Remota Vila no Norte da Índia
 
-Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
-
 ![Malana Cream - O Haxixe mais saboroso do mundo]({{site.baseurl}}/https://i.imgur.com/LXttUap.jpg)
+
+Malana é uma antiga vila indiana no estado de Himachal Pradesh. Está localizada no Malana Nala, um vale na região do Himalaia, totalmente isolada do resto do mundo, com pouco mais de 4 mil habitantes. É lá que é produzido um dos haxixes mais saborosos e únicos do mundo, potente, cultivado em sólo fértil e com as melhores sementes, selecionadas a mão ao longo de centenas de anos.
 
 Localizada a 2.700 metros (8.859 pés) acima do mar, para chegar em Malana é preciso quatro dias de caminhada a partir da estrada mais próxima, ou se aventurar de moto por trilhas estreitras subindo a montanha.
 
