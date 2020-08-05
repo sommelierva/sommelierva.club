@@ -23,7 +23,7 @@ Por anos o Afeganistão tem sido o maior produtor de ópio do mundo, matéria pr
 
 Assim como o ópio, a maior parte do cultivo de maconha ocorre no sul do país onde a presença do Talibã é mais forte, disse o UNODC, com mais de dois terços (67%) dos produtores cultivando ópio e também cannabis.
 
-<img src="https://i.imgur.com/ipQXxAa.jpg" alt="Produtor de cannabis - Afeganistão">
+<img src="https://i.imgur.com/X0FwQpT.jpg" alt="Produtor de cannabis - Afeganistão">
 Imagem: Baaba Qo
 
 Porém, o Afeganistão ainda produz muito mais ópio que maconha, é improvável que os cultivos de maconha ultrapassem o de ópio, pois necessita-se de uma quantidade de água maior, recurso escasso na região. Além que o ópio tem um tempo de vida maior que o da maconha, podendo ficar 10 a 15 anos guardado, envelhecendo como vinho, com a maconha todo o processo precisa ser muito rápido.
