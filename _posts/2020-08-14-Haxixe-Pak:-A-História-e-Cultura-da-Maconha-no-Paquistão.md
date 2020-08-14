@@ -35,7 +35,7 @@ Alguns adulterantes, como a hena (sim, de cabelo), podem ser adicionados nesta f
 
 Outro método tradicional é o de colocar o “garda” envolto em pele de cabra e armazená-lo por vários meses (processo de cura). A gordura subdérmica da pele transforma a resina em uma massa pegajosa e marrom esverdeada, que segundo os produtores paquistaneses, aumenta consideravelmente a potência e qualidade do produto.
 
-<img src="https://upload.wikimedia.org/wikipedia/commons/9/9f/Process_of_making_bhang_in_Punjab%2C_India.jpg" alt="Haxixe envolto em pele de cabra">
+<img src="https://i.imgur.com/n3YWGmH.jpg" alt="Haxixe envolto em pele de cabra">
 Imagem: RadioFreeEurope
 
 ## E o “Pak”?
