@@ -1,7 +1,7 @@
 ---
 published: true
 ---
-O Paquistão é um do Sul da Ásia com uma população superior a 200 milhões, a capital se chama Islamabad e a cidade mais populosa é Carachi. O país possui um litoral com 1046 km de extensão ao longo do Mar da Arábia e do Golfo de Omã, fazendo fronteira com a Índia, Afeganistão, com o Irã e China. 
+O Paquistão é um país do Sul da Ásia com uma população superior a 200 milhões, a capital se chama Islamabad e a cidade mais populosa é Carachi. O país possui um litoral com 1046 km de extensão ao longo do Mar da Arábia e do Golfo de Omã, fazendo fronteira com a Índia, Afeganistão, com o Irã e China. 
 
 A cultura da maconha no país é bem antiga, assim como nos vizinhos Índia e Afeganistão. Apesar de ser ilegal, o Estado faz vista grossa e o consumo da cannabis em forma de Charas e Bangh são bem comuns. Por ser um país Muçulmano, o consumo de álcool é proibido.
 
