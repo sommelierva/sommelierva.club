@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 O Paquistão é um do Sul da Ásia com uma população superior a 200 milhões, a capital se chama Islamabad e a cidade mais populosa é Carachi. O país possui um litoral com 1046 km de extensão ao longo do Mar da Arábia e do Golfo de Omã, fazendo fronteira com a Índia, Afeganistão, com o Irã e China. 
 
