@@ -16,6 +16,7 @@ Imagem: Wikipedia
 Nas décadas de 1960 e 1970, o Paquistão era popular entre os mochileiros, que usavam cannabis como parte de sua cultura "hippie". Durante este tempo, os famosos mercados de haxixe de Peshawar foram estabelecidos. A proibição na década de 1980 tornou a cannabis ilegal, mas muitos residentes do Paquistão continuam a usá-la.
 
 <img src="https://i.imgur.com/SeQoxfr.jpg" alt="Turista no Paquistão">
+
 Imagem: Weedheads
 
 A maior parte da cannabis do Paquistão é cultivada no noroeste do país, nas áreas tribais administradas pelo governo federal. Este terreno fértil e montanhoso é ideal para o cultivo de maconha e papoula do ópio.
