@@ -1,5 +1,5 @@
 ---
-published: false
+published: true
 ---
 Hong Kong é uma cidade especial, pelo menos para mim! Morei lá um tempo e pude conhecer de perto a cena da maconha, quem vende, onde encontrar e como as pessoas por lá se relacionam com a planta. 
 
