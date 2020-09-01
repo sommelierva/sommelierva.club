@@ -26,3 +26,19 @@ Hong Kong não é o único a adotar uma postura dura em relação à maconha. A 
 ## Blueberry que comprei em Hong Kong, saudades!
 
 <img src="https://i.imgur.com/Z0gQcGu.png" alt="Maconha em Hong Kong">
+
+## Agradecimentos
+
+Mais uma vez quero agradecer o amigo @shaddynho, que deu uma força na tradução!
+
+Também quero agradecer o parceiro @koala_grower, que tem buscado dar uma melhorada no blog.
+
+TMJ!
+
+## Fontes
+
+https://www.scmp.com/news/hong-kong/education-community/article/2100741/whats-deal-cannabis-hong-kong
+
+https://www.scmp.com/news/hong-kong/law-crime/article/2094662/hong-kong-police-make-biggest-seizure-cannabis-plants-1997
+
+https://www.vice.com/en_ca/article/kzm8x3/weed-canada-hong-kong
